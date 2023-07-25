@@ -1,3 +1,0 @@
-DELL
-DESKTOP-15VLH02 
-Monday, July 17, 2023  5:08:17 PM
